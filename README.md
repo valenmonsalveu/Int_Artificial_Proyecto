@@ -5,5 +5,5 @@
 
 *Andrés Felipe Duarte Yaruro - CC 1019095092 - Ingeniería Mecánica*
 
-Enlace par avideo de youtube segunda entrega: https://youtu.be/f5Xq5eyff-I 
+Enlace para video de youtube segunda entrega: https://youtu.be/f5Xq5eyff-I 
 
